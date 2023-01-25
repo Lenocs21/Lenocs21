@@ -1,4 +1,4 @@
-##My Profile
+## My Profile
 
 ### My favorites
 1. **moving my body in a gym**
